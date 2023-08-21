@@ -1,2 +1,2 @@
 # EzeeTours
-<img src="https://drive.google.com/file/d/18ZGc-DNJQ1xtAnzs8G2mHC1EmLsTw_hz/view?usp=sharing">
+<img src="https://cdn.britannica.com/62/234462-050-7D5808C6/color-wheels-RYB-RGB.jpg">
